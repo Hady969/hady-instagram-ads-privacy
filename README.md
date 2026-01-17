@@ -1,1 +1,1 @@
-# hady-instagram-ads-privacy
+# com2mpe-ads-privacy
